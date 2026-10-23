@@ -8,4 +8,5 @@
 ---
 - Ivan joven padawan👀
 
-**DÍAS HASTA LA ENTREGA**: 15 días
+
+**DÍAS HASTA LA ENTREGA**: 13 días
