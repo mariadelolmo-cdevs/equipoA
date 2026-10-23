@@ -7,3 +7,5 @@
 **✨ RUBOGAR ✨**  
 ---
 - Ivan joven padawan👀
+
+**DÍAS HASTA LA ENTREGA**: 10 días
